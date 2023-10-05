@@ -45,4 +45,4 @@ I'm dedicated to enhancing my advanced English to communicate better and build c
 * Advanced English
 
 ## Get in Touch ##
-Feel free to connect via [LinkedIn](https://www.linkedin.com/in/ruan-diego-velloso-cardozo/) to explore collaboration opportunities, projects, or simply to share insights and ideas!
+Feel free to connect via [LinkedIn](https://www.linkedin.com/in/guilherme-elias-kopsch-36b5b6210/) to explore collaboration opportunities, projects, or simply to share insights and ideas!
